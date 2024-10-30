@@ -1,1 +1,1 @@
-# paulettemal.github.io
+# Curriculum
